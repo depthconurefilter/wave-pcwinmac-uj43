@@ -1,4 +1,4 @@
-# 
+# Léger Wave préréglages pour Mac OS | Open Source Wave préréglages pour PC Windows. Avec recherche de déductions et calculs de pécules — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
